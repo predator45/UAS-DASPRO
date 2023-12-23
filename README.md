@@ -1,4 +1,5 @@
 di sini kami membuat vidio ini dengan anggota yg berjumlahkan 3 orang
-1.Muhammad syahir
-2.Nurdiansyah pratama(1227050139)
-3.Yoga Dwi Prayoga# UAS-DASPRO
+1.Syahir Mohamad Ramdhan_1237050022
+2.Nurdiansyah pratama_1237050139
+3.Yoga Dwi Prayoga
+# UAS-DASPRO
